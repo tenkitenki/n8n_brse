@@ -1,0 +1,1 @@
+Cây cối là phần quan trọng của hệ sinh thái, chúng cung cấp oxy, hấp thụ carbon dioxide và là nơi sinh sống của nhiều loài động vật. Cây cối có nhiều hình dạng và kích thước khác nhau, từ những cây cao lớn đến những loại cây hoa nhỏ, mang lại vẻ đẹp cho môi trường xung quanh.
