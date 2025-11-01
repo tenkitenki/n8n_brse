@@ -1,0 +1,3 @@
+# Test 8
+
+Cây cối là biểu tượng của sức sống và xanh tươi. Những tán lá xanh mướt vươn cao hướng về ánh nắng mặt trời, tạo thành một bóng mát cho không gian xung quanh. Cành cây oằn mình trong gió, mang theo âm thanh xào xạc dễ chịu. Hoa trái của cây mang đến vẻ đẹp rực rỡ và hương thơm tự nhiên, thu hút bướm và chim chóc đến gần. Cây không chỉ cung cấp oxy mà còn là nơi trú ngụ cho nhiều loài động vật, tạo nên sự cân bằng sinh thái trong môi trường.
